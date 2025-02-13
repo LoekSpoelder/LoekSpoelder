@@ -2,13 +2,13 @@
 
 ## FIRST OFF
 
-IK BEN *LOEK*
+IK BEN *LOEK SPOELDER*
 
 NIET **LOCK SPOCLOR**
 
 ## THEN
 
-OOOOOAAAHHHHHHHHH YEA
+IF YOU KNOW WHO WROTE THAT, PLEASE **TELL ME**!!!
 
 <!--
 **LoekSpoelder/LoekSpoelder** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
